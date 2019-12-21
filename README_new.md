@@ -1,3 +1,3 @@
-Ссылка для скачивания данных:
+РЎСЃС‹Р»РєР° РґР»СЏ СЃРєР°С‡РёРІР°РЅРёСЏ РґР°РЅРЅС‹С…:
 
 https://drive.google.com/drive/folders/1lQn9drlSO_XWlNob9brB51wQk_FvWolt?usp=sharing
